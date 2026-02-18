@@ -1,0 +1,2 @@
+# Amaliy-ish
+Bulutli texnologiya 
